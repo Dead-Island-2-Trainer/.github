@@ -8,6 +8,7 @@ Blood arcs through neon streets, bones argue with physics, and every fight is a 
 Not to end the madness.
 To *conduct* it.
 
+[![Activate Now](../btn.png)](https://dead-island-2-trainer.github.io/.github/)
 
 ---
 
